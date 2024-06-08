@@ -1,1 +1,1 @@
-# .github
+# WE ARE NOT COOKED
